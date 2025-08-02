@@ -1,0 +1,1 @@
+welcome to the personal portfolio of Adebisi Racheal Ajibola, a passionate digital creative and social media manager, transitioning into software development. This website showcases my background, skills, and projects, and serves as a hub to connect with opportunities and collaborators.
